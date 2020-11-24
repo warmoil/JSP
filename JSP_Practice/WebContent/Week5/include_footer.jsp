@@ -1,0 +1,1 @@
+Copyleft &copy; joy 
